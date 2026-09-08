@@ -1,1 +1,1 @@
-+ Just Say Yes
+Just Say Yes
